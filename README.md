@@ -2,6 +2,6 @@
 * `Imad eddine Zerrouq` 
 * Youness Outaik
 * Idarrha Adam
-* D.. S..
+* Diabate sekou
 * Y.. R..
 * H.. K..
